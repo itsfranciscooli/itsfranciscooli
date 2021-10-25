@@ -5,5 +5,3 @@ I'm Francisco, a student at Artistic and Professional School Tree who founded [@
 
 If I'm not coding, I'm probably watching movies or gaming. 🎮
 
-- 🔭 I’m currently working on XM Hosts
-- 📫 How to reach me: hello@franciscooliveira.xyz
