@@ -3,5 +3,5 @@
 ### Hi there 👋
 I'm Francisco, a student at Artistic and Professional School Tree who founded [@XM Hosts](https://github.com/xmhosts). 🖥
 
-If I'm not coding, I'm probably watching movies or gaming. 🎮
+If I'm not coding, I'm probably watching movies, gaming or editing. 🎮
 
